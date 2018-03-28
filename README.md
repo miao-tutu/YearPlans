@@ -1,6 +1,6 @@
 This page is my personal 2018 year plans. (updating...)
 
-+ Pass the entrance examination for postgraduate. This is the prerequisite for below.
++ Pass the entrance examination for postgraduate. This is the prerequisite for below.(done-2018.3.27)
 
 
 + Read books: 
